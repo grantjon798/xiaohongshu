@@ -2,9 +2,9 @@
 
 Telegram账号资源对接企业号运营常见问题：Telegram账号资源对接企业号运营的核心，不是批量购买账号，而是建立合规、稳定、可追踪的账号体系。企业应优先使用官方注册账号，完成手机号验证、两步验证和权限分级，再根据客服、社群或海外营销场景配置运营流程，降低封禁与信息泄露风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号资源对接企业号运营
 

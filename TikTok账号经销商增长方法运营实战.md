@@ -2,9 +2,9 @@
 
 TikTok账号经销商增长方法运营实战：TikTok账号经销商想提升利润，关键不在于单纯增加账号数量，而在于建立合规货源、分级定价、内容配套和售后体系。优先选择来源可验证、权属清晰且符合平台规则的账号，再用数据管理降低封禁与退款风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号经销商
 

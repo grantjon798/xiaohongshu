@@ -2,9 +2,9 @@
 
 Telegram账号供应资料完善完整教程的核心，是按官方流程补齐头像、用户名、简介、绑定手机号与安全验证，并检查隐私设置。建议使用本人手机号注册，不购买或转让来路不明的账号，以免遭遇封禁、找回纠纷或隐私泄露。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号供应资料完善完整教程
 

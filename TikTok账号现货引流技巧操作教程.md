@@ -2,9 +2,9 @@
 
 TikTok账号现货引流技巧操作教程：TikTok账号现货引流技巧的核心，不是批量发广告，而是用垂直内容吸引目标用户，再通过主页资料、评论区和合规私信完成转化。运营前应确认账号来源合法、定位清晰，并避免刷粉、群发骚扰信息及虚假承诺。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号现货引流技巧
 

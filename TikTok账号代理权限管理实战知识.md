@@ -2,9 +2,9 @@
 
 TikTok账号代理权限管理实战知识：TikTok账号代理权限管理的核心，是让代理商在不接触主账号密码的前提下完成发布、评论、数据查看等工作，同时确保品牌方保留最终控制权。规范设置角色、权限范围和到期时间，能降低误操作、账号被盗及员工离职后的安全风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号代理权限管理
 

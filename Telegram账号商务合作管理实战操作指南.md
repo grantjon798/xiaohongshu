@@ -2,9 +2,9 @@
 
 Telegram账号商务合作管理实战操作指南：Telegram账号商务合作管理的核心，是把客户沟通、线索记录、权限分工和风险控制流程化。建议先建立专用商务账号，再使用标签、表格或客户关系工具追踪进展，避免因信息分散而错失合作机会。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号商务合作管理
 

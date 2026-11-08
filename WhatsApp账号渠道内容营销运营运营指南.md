@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道内容营销运营运营指南：WhatsApp账号渠道内容营销运营的关键，不是频繁群发广告，而是通过合规触达、精准分组和持续服务，把聊天用户转化为咨询、复购客户。适合跨境电商、外贸企业及本地服务商使用。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号渠道内容营销运营
 

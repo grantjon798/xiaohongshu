@@ -2,9 +2,9 @@
 
 TikTok账号采购服务实名认证指南操作技巧：TikTok账号采购服务实名认证的关键，是确认账号来源合法、实名主体一致，并通过官方流程完成验证。用户不应购买使用他人身份信息的账号，也不要相信“免资料、包过审”承诺。选择服务商前，应先核验营业信息、账号历史、交付协议和售后责任，避免账号被找回或因资料异常受限。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号采购服务实名认证
 

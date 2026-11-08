@@ -2,9 +2,9 @@
 
 TikTok账号供应异常处理操作入门：遇到TikTok账号供应异常时，应先暂停登录、投放或批量操作，核对订单编号、账号地区、注册时间及异常提示，再联系正规供应商申请补发、退款或更换。不要购买来历不明的账号，也不要尝试绕过实名、验证码或风控限制。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号供应异常处理
 

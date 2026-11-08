@@ -2,9 +2,9 @@
 
 Telegram账号采购认证运营完整教程：Telegram账号采购认证运营应以合规和安全为前提。若用于企业客服、社群管理或海外营销，建议优先注册并验证自有账号，不要购买来历不明的成品号，避免因历史违规、异地登录或批量操作导致封禁。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号采购认证运营
 

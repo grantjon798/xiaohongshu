@@ -2,9 +2,9 @@
 
 LINE账号商务合作绑定教程运营指南：LINE账号商务合作绑定的核心，是将企业官方账号、合作方权限与运营工具建立安全关联。操作前应确认账号主体、合作范围和管理员身份，再通过LINE官方后台完成授权，避免因权限混乱造成消息泄露或账号被锁。通常准备好企业资料、管理员邮箱、双重验证及合作方信息后，即可开始。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号商务合作绑定
 

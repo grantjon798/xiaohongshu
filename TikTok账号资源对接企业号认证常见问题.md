@@ -2,9 +2,9 @@
 
 TikTok账号资源对接企业号认证常见问题：TikTok账号资源对接企业号认证的关键，不是购买所谓“已认证账号”，而是使用主体真实、来源合规的账号，并通过TikTok官方企业验证流程。企业应准备营业执照、公司邮箱、官网及负责人信息，避免因资料不一致导致审核失败或账号受限。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号资源对接企业号认证
 

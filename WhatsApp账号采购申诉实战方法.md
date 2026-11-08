@@ -2,9 +2,9 @@
 
 WhatsApp账号采购申诉实战方法：遇到新购WhatsApp账号被限制时，最有效的做法不是反复提交，而是说明账号来源、实际用途，并提交可核验的交易与身份材料。WhatsApp账号采购申诉应坚持真实、简洁、一次性完整提交，避免使用虚假信息或尝试绕过平台审核。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号采购申诉
 

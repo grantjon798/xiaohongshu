@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道异常处理操作推广指南：遇到WhatsApp账号渠道异常，先停止批量发送和频繁登录，记录报错页面、设备及时间，再通过官方申诉或企业管理平台检查账号状态。不要反复更换代理、购买来路不明的号码，否则可能加重风控。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号渠道异常处理
 

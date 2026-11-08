@@ -2,9 +2,9 @@
 
 针对企业客服、社群运营或测试团队，QQ账号库存注册方案的重点不是批量囤号，而是通过实名合规、权限分级和动态盘点，建立可追溯的账号资源库。建议使用官方渠道注册，并保留用途、负责人、状态和登录记录，避免账号闲置、混用或触发风控。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号库存注册方案
 

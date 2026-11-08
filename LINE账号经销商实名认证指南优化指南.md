@@ -2,9 +2,9 @@
 
 LINE账号经销商实名认证指南优化指南：LINE账号经销商实名认证，核心是通过官方或授权合作渠道，核验经销商的企业主体、负责人及业务资质。准备完整资料并按要求提交，通常比反复修改表单更快通过，也能降低账号被限制或暂停服务的风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号经销商实名认证
 

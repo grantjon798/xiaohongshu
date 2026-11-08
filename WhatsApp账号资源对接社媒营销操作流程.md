@@ -2,9 +2,9 @@
 
 要做好WhatsApp账号资源对接社媒营销操作流程，关键不是大量添加账号，而是先确认用户授权，再通过官方WhatsApp Business完成分组、触达与转化。规范操作可降低封号风险，也便于追踪广告、内容和客服效果。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号资源对接社媒营销操作流程
 

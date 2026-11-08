@@ -2,9 +2,9 @@
 
 想提升LINE商铺曝光与成交，关键不是单纯增加好友，而是建立“引流、内容、咨询、复购”的闭环。LINE账号商铺流量运营操作方法应从账号定位、好友来源和数据追踪三方面同步执行，才能把访问量转化为有效订单。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号商铺流量运营操作方法
 

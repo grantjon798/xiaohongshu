@@ -2,9 +2,9 @@
 
 LINE账号零售新手运营实战常见问题：LINE账号零售新手运营的关键，不是频繁发广告，而是先完成账号定位、好友分层与转化流程。建议以门店或商品为中心设置欢迎语，首次加好友即发送优惠券，再通过内容培养老客信任。新手可从单一品类开始，每周复盘阅读率、点击率、优惠券领取率和成交率，通常比盲目增加推送次数更有效。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号零售新手运营
 

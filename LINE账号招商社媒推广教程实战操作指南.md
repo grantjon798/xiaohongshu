@@ -2,9 +2,9 @@
 
 LINE账号招商社媒推广教程实战操作指南：LINE账号招商社媒推广的核心，不是大量发布广告，而是通过精准内容吸引潜在代理商，再用私信、表单和社群完成筛选转化。实际操作时，应先明确招募对象、合作政策与合规边界，避免群发骚扰或夸大收益。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号招商社媒推广
 

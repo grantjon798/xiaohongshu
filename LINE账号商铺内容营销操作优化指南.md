@@ -2,9 +2,9 @@
 
 LINE账号商铺内容营销操作优化指南：LINE账号商铺内容营销的重点，不是频繁发广告，而是围绕用户需求持续提供有用内容，再用优惠、客服和下单入口完成转化。建议先明确目标客群，建立固定内容栏目，并通过数据调整发布时间与促销方式。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号商铺内容营销
 

@@ -2,9 +2,9 @@
 
 LINE账号渠道合作社交媒体推广操作安全指南：LINE账号渠道合作要先解决合规与账号安全问题，再进行社交媒体推广。建议使用官方渠道、明确用户授权、控制发送频率，并为每个合作来源设置独立追踪链接，既方便评估转化，也能降低封号和投诉风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号渠道合作
 

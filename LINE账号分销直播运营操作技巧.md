@@ -2,9 +2,9 @@
 
 LINE账号分销直播运营操作技巧：想通过直播稳定拓展LINE客户，关键不只是分发账号，而是建立“授权账号、内容直播、私域跟进、数据复盘”的闭环。LINE账号分销直播运营应以真实用户需求为核心，先明确受众与转化目标，再安排主播和客服协同执行，避免盲目群发造成封号或投诉。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号分销直播运营
 

@@ -2,9 +2,9 @@
 
 QQ账号服务商认证运营注意事项的核心，是先确认主体资质与业务用途，再按平台规则开展服务。运营者应使用真实企业信息，明确账号管理、客户授权和数据保护责任，避免批量注册、出租账号或诱导营销等高风险行为。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号服务商认证运营注意事项
 

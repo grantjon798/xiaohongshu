@@ -2,9 +2,9 @@
 
 WhatsApp账号采购商社媒营销操作技巧：面向WhatsApp账号采购商做社媒营销，关键不是大量发布广告，而是通过真实案例、合规渠道和精准内容建立信任。建议使用企业官方账号，明确服务范围、交付方式与售后规则，并在LinkedIn、Facebook等平台持续触达有明确需求的客户。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号采购商社媒营销
 

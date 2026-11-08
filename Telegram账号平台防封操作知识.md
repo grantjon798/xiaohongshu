@@ -2,9 +2,9 @@
 
 Telegram账号平台防封操作知识：Telegram账号平台防封操作的核心，不是绕过平台审核，而是遵守规则、降低异常行为风险并做好账号安全管理。新账号应使用真实手机号完成验证，优先选择官方客户端，避免短时间大量加群、私聊陌生人或重复发送相同内容。若账号被限制，应通过官方申诉渠道处理，不要频繁更换设备和网络。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号平台防封操作
 

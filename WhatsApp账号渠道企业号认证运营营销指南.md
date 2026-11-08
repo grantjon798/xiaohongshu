@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道企业号认证运营营销指南：想做好WhatsApp账号渠道企业号认证运营营销，重点不是单纯注册账号，而是完成企业资料核验、合规获客、客户分层和持续转化。优先使用WhatsApp Business或官方API，能降低封号风险，并支持多人协作、自动回复与数据追踪。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp企业号认证
 

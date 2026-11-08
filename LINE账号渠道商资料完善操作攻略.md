@@ -2,9 +2,9 @@
 
 LINE账号渠道商资料完善操作攻略：LINE账号渠道商资料完善的关键，是让平台、合作方和客户快速确认企业身份、业务范围与服务能力。建议先准备营业执照、联系人信息、官网或社交主页，再按后台字段逐项填写并提交审核，避免因资料缺失、图片模糊或信息不一致导致退回。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号渠道商资料完善
 

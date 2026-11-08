@@ -2,9 +2,9 @@
 
 WhatsApp账号供应社媒运营实战：WhatsApp账号供应应以官方注册、企业授权和合规交付为前提，重点不是单纯购买账号，而是建立可持续的社媒运营体系。企业应优先使用WhatsApp Business或官方API，完成号码验证、资料完善、客户同意与消息分类，避免群发骚扰导致封号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号供应
 

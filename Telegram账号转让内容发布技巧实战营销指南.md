@@ -2,9 +2,9 @@
 
 Telegram账号转让内容发布技巧实战营销指南：Telegram账号转让内容发布，重点不是“低价吸引买家”，而是证明账号来源合法、信息真实并降低交易风险。发布前应确认账号属于本人或企业，遵守Telegram规则及当地法律，避免出售盗号、批量注册或用于诈骗的账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号转让
 

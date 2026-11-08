@@ -2,9 +2,9 @@
 
 Telegram账号渠道商认证实战详细教程：Telegram账号渠道商认证并非统一的官方标准。稳妥做法是先核验供应商资质、账号来源和售后责任，再通过Telegram官方客户端完成安全设置，避免购买来路不明、批量注册或承诺“永久不封”的账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号渠道商认证
 

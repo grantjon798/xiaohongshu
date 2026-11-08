@@ -2,9 +2,9 @@
 
 WhatsApp账号采购保护指南：WhatsApp账号采购保护的核心，是避免买到被盗、批量注册或即将被封禁的账号。采购前应优先选择合规服务商，核验账号来源、注册信息和登录控制权，禁止购买他人实名账号或通过非官方方式绕过验证。完成交接后，还要立即更换密码、绑定企业手机号并开启双重验证。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号采购保护
 

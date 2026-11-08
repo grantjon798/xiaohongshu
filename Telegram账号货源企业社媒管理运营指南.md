@@ -2,9 +2,9 @@
 
 Telegram账号货源企业社媒管理运营指南：Telegram账号货源企业社媒管理运营的核心，不是低价购买大量账号，而是通过官方注册、实名授权、权限分级和内容规范，建立稳定可追踪的企业社媒体系。企业应先明确使用场景，再配置账号、群组与客服流程，避免封禁、信息泄露及客户投诉。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号货源企业社媒管理运营
 

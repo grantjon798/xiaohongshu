@@ -2,9 +2,9 @@
 
 TikTok账号出售图文营销运营详细教程：TikTok账号出售并不是简单交付用户名和密码。交易前应核实账号归属、粉丝质量、内容版权、违规记录及平台规则；部分地区或账号类型可能禁止转让，优先选择官方允许的商业合作或资产交接方式，避免因买卖导致封禁和资金损失。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号出售
 

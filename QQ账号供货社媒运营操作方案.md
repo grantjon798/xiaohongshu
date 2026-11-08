@@ -2,9 +2,9 @@
 
 QQ账号供货社媒运营操作方案的重点，不是批量购买账号，而是建立合规、可追溯的账号管理流程。企业应优先使用实名注册、获得授权的QQ账号，配合内容规划、权限控制和数据复盘，降低封禁、盗号及信息泄露风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号供货社媒运营操作方案
 

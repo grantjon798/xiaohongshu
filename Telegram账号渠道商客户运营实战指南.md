@@ -2,9 +2,9 @@
 
 Telegram账号渠道商客户运营实战指南：Telegram账号渠道商客户运营的关键，不是批量加人或频繁群发，而是建立合规的获客、分层、跟进和复购流程。渠道商应先明确客户来源与授权范围，再用标签管理需求，通过有价值的内容和及时服务提高转化，避免骚扰、封号及信任风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号渠道商客户运营
 

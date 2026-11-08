@@ -2,9 +2,9 @@
 
 Telegram账号经销商官方认证教程专业指南：先确认一个关键事实：Telegram目前没有面向普通账号经销商的统一“官方认证”通道。所谓认证代理、批量账号授权多为第三方营销，用户应通过Telegram官网、官方应用及公开商务渠道核验，切勿购买所谓蓝标、内部名额或绕过验证服务。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号经销商官方认证
 

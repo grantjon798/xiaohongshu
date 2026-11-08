@@ -2,9 +2,9 @@
 
 选择WhatsApp账号采购服务时，安全重点不是“账号数量”，而是来源合规、身份认证和后续可控。优先使用WhatsApp Business官方渠道或正规服务商，核验企业资质、授权文件、退款条款及数据保护措施，拒绝购买来历不明、批量注册或承诺绕过验证的账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号采购服务认证安全指南
 

@@ -2,9 +2,9 @@
 
 LINE账号商铺社媒矩阵管理营销指南：想同时经营门店、官网与多个社交渠道，关键不是重复发帖，而是建立统一的LINE账号商铺社媒矩阵管理流程。通过官方账号、商品目录、优惠券和客服数据联动，商家可集中管理内容、订单与会员触达，降低运营成本并提升复购率。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号商铺社媒矩阵管理
 

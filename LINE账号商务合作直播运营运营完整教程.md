@@ -2,9 +2,9 @@
 
 LINE账号商务合作直播运营运营完整教程：想通过LINE开展商务合作直播，关键是先明确账号定位，再用稳定直播流程承接咨询、成交与复购。LINE账号商务合作直播运营并非单纯开播，而是把内容、私域沟通和数据复盘连接起来，适合品牌、跨境商家及服务团队使用。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号商务合作直播运营
 

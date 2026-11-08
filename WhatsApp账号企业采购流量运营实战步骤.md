@@ -2,9 +2,9 @@
 
 WhatsApp账号企业采购流量运营实战步骤：WhatsApp账号企业采购流量运营的核心，是用合规账号承接广告、展会和官网访客，再通过标签分组、自动回复与人工跟进，把咨询转化为有效商机。建议先明确目标客户和采购场景，搭建“获客—筛选—报价—复购”流程，而不是盲目群发。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号企业采购流量运营
 

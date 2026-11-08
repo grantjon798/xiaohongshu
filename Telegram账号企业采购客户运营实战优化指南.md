@@ -2,9 +2,9 @@
 
 Telegram账号企业采购客户运营实战优化指南：做好Telegram账号企业采购客户运营，关键不是盲目加人，而是建立“精准获客—需求分层—持续跟进—合规转化”流程。企业应先明确采购行业、地区和职位，再通过群组、频道及官网入口吸引真实客户，并用统一标签记录预算、采购周期与决策阶段。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号企业采购客户运营
 

@@ -2,9 +2,9 @@
 
 QQ账号经销企业号认证运营指南：想做好QQ账号经销企业号认证运营，重点不是批量购买账号，而是通过正规渠道完成企业资质核验、账号归属登记和持续运营。企业应选择具备授权能力的服务商，明确账号来源、售后范围及违规责任，避免因虚假资料、异常登录或营销骚扰导致认证失败。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号经销企业号认证
 

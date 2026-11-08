@@ -2,9 +2,9 @@
 
 TikTok账号货源申诉操作推广指南：TikTok账号货源申诉的关键，是在规定期限内提交真实、完整、可核验的采购与履约材料，说明账号经营情况并提出整改方案。不要重复提交相同截图，也不要购买虚假凭证，否则可能延长审核或导致申诉失败。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号货源申诉
 

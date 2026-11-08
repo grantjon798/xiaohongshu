@@ -2,9 +2,9 @@
 
 WhatsApp账号供应商做短视频运营，重点不是单纯展示账号数量，而是通过真实场景、合规流程和客户案例建立信任。建议采用“定位账号类型—制作演示内容—引导咨询—售后跟进”的闭环，并明确账号来源、适用地区及使用规则，避免因群发骚扰或虚假宣传造成封号风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号供应商短视频运营操作方法
 

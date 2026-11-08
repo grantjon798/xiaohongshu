@@ -2,9 +2,9 @@
 
 TikTok账号资源对接营销技巧操作流程：TikTok账号资源对接营销的关键，是先按粉丝地区、内容垂直度和互动率筛选账号，再通过统一报价、内容 brief、发布时间与数据复盘完成合作。相比只看粉丝量，这种流程更能控制预算，提升种草、引流和转化效果。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号资源对接
 

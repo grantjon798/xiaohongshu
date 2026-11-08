@@ -2,9 +2,9 @@
 
 Telegram账号渠道合作矩阵运营实战攻略：Telegram账号渠道合作矩阵运营的核心，是把不同定位、地区和受众的账号组合起来，通过内容互推、资源置换与数据追踪，持续降低获客成本。小团队也能从3—5个垂直账号起步，先验证转化，再逐步扩大合作网络。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号渠道合作矩阵运营
 

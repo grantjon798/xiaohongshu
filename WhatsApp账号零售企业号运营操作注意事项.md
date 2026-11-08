@@ -2,9 +2,9 @@
 
 运营WhatsApp零售企业号，关键是先取得客户明确授权，再通过规范资料、分组触达和及时客服降低封号风险。WhatsApp账号零售企业号运营操作注意事项主要包括合规获客、消息频率、内容质量及数据安全，不能依赖群发软件或未经同意的营销名单。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号零售企业号运营操作注意事项
 

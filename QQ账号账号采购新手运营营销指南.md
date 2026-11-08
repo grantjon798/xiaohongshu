@@ -2,9 +2,9 @@
 
 QQ账号账号采购新手运营营销指南：QQ账号采购新手应优先选择腾讯官方渠道，而不是购买来历不明的个人账号。若用于客服、社群或营销，建议采用企业QQ、QQ营销工具或实名注册账号，先明确用途、数量和权限，再制定合规运营方案，避免封号、诈骗及隐私泄露风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号采购
 

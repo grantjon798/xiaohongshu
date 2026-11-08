@@ -2,9 +2,9 @@
 
 LINE账号账号交易社媒营销专业指南：LINE账号交易并不是社媒营销的捷径：未经授权买卖账号可能导致封禁、隐私泄露和客户资产丢失。更稳妥的做法是注册LINE官方账号，通过企业认证、内容运营与合规广告建立可持续的营销渠道。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号交易
 

@@ -2,9 +2,9 @@
 
 WhatsApp账号采购服务视频营销实战攻略：WhatsApp账号采购服务视频营销的核心，不是批量购买个人账号，而是通过合规的企业账号、授权号码和视频内容触达目标客户。选择服务商时，应重点确认账号来源、企业验证、号码归属、售后支持及是否遵守WhatsApp商业政策，避免因群发骚扰、虚假身份或违规导流导致封号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号采购服务视频营销
 

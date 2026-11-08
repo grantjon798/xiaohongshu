@@ -2,9 +2,9 @@
 
 WhatsApp账号资源对接增长方法运营优化指南：想通过WhatsApp获客，关键不是大量购买账号，而是建立合规的WhatsApp账号资源对接流程：使用企业官方账号，获得用户明确授权，按地区、语言和兴趣分层运营，并持续优化回复与转化路径。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号资源对接
 

@@ -2,9 +2,9 @@
 
 搜索“Telegram账号交易企业号认证流程”的用户，首先要明确：Telegram通常不支持账号买卖或直接过户，也没有面向所有企业开放的统一认证入口。更稳妥的做法是使用公司实名注册的手机号创建账号，并通过官方渠道申请相关认证，避免因账号来源不明、资料不一致而被限制。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号交易企业号认证流程
 

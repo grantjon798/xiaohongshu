@@ -2,9 +2,9 @@
 
 购买YouTube账号后无法登录，优先确认账号归属、付款凭证和原注册邮箱，再通过YouTube官方恢复渠道处理。所谓YouTube账号求购找回攻略，核心不是绕过验证，而是证明合法控制权，降低账号被追回或封禁的风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是YouTube账号求购找回攻略
 

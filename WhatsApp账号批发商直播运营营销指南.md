@@ -2,9 +2,9 @@
 
 WhatsApp账号批发商直播运营营销指南：WhatsApp账号批发商开展直播营销，重点不是单纯出售账号，而是通过真实演示、合规说明和售后服务建立信任。建议优先经营经过授权、来源清晰的企业账号资源，明确适用地区、功能范围及使用限制，避免因批量注册、虚假资料或骚扰营销导致封号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号批发商直播运营
 

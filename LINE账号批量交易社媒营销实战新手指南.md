@@ -2,9 +2,9 @@
 
 LINE账号批量交易社媒营销实战新手指南：LINE账号批量交易看似能快速获得营销资源，实际上常伴随封号、隐私泄露和资金纠纷。更稳妥的做法是使用LINE官方企业工具，通过授权账号、分组管理和用户同意开展社媒营销。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号批量交易
 

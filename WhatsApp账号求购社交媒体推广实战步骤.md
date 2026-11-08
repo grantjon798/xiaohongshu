@@ -2,9 +2,9 @@
 
 WhatsApp账号求购社交媒体推广实战步骤：不建议通过“WhatsApp账号求购”开展推广。购买来的账号可能涉及盗用、批量注册或来源不明，容易触发封禁、客户投诉和隐私风险。更稳妥的做法是使用企业官方账号，通过用户授权、内容运营和合规广告获取真实客户。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号求购
 

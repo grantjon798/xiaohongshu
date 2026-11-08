@@ -2,9 +2,9 @@
 
 TikTok账号交易安全实战：TikTok账号交易安全的关键，是先核验账号归属与数据，再通过可追溯的第三方担保完成交接。买家不要只看粉丝数量，卖家也应防范钓鱼链接、恶意退款和隐私泄露。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号交易安全
 

@@ -2,9 +2,9 @@
 
 WhatsApp账号厂家企业营销详细教程：企业若想借助WhatsApp拓展海外客户，重点不是购买大量账号，而是选择合规的WhatsApp账号厂家，使用官方WhatsApp Business或WhatsApp Business Platform，完成企业认证、客户分组和自动化跟进。这样能降低封号风险，并让营销过程可追踪、可复盘。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号厂家
 

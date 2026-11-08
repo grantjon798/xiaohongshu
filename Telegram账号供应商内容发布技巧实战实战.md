@@ -2,9 +2,9 @@
 
 Telegram账号供应商内容发布技巧实战实战：选择Telegram账号供应商后，内容发布的重点不是追求数量，而是保证账号来源合规、定位清晰和互动真实。建议先确认账号授权、使用权限及售后支持，再制定内容日历；未经同意批量群发、绕过验证或发布欺诈信息，容易造成封禁并损害品牌信誉。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号供应商
 

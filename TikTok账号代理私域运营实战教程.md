@@ -2,9 +2,9 @@
 
 TikTok账号代理私域运营实战教程：TikTok账号代理私域运营的核心，是在获得品牌授权的前提下，通过内容获客、私信承接和合规社群服务，把一次性流量转化为可持续触达的客户。实际执行应先明确目标市场、账号权限与转化路径，再用数据持续优化。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号代理私域运营
 

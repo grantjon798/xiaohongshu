@@ -2,9 +2,9 @@
 
 Telegram账号供货申诉操作运营指南：遇到Telegram账号供货申诉问题，优先通过官方申诉渠道说明账号用途、注册信息及受限原因，提交真实资料并停止群发、批量登录等高风险操作。不要购买“内部解封”服务，也不要反复提交相同表单，以免延长审核时间。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号供货申诉
 

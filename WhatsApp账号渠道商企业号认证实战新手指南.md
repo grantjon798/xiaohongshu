@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道商企业号认证实战新手指南：WhatsApp账号渠道商企业号认证的核心，是通过Meta Business Manager完成企业资料验证，再由官方渠道商接入WhatsApp Business Platform。准备营业执照、官网、企业邮箱及负责人信息，资料一致通常能减少审核往返；认证通过后，还需配置显示名称、号码和消息模板。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号渠道商企业号认证
 

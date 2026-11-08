@@ -2,9 +2,9 @@
 
 Telegram账号商城运营运营常见问题：Telegram账号商城运营的核心，不是单纯上架账号，而是建立合规的供货、审核、交付与售后流程。想降低封号、退款和投诉风险，应优先保证账号来源合法、信息真实，并遵守Telegram平台规则及当地法律。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号商城运营
 

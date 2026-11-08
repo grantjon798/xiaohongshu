@@ -2,9 +2,9 @@
 
 Telegram账号厂家私域运营方案的核心，是在合规和用户授权基础上，建立“账号供应、内容触达、客户沉淀、数据复盘”闭环。运营者不应依赖群发骚扰或批量注册，而要通过稳定账号、精准分层和持续服务提升转化。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号厂家私域运营方案
 

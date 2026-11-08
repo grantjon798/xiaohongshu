@@ -2,9 +2,9 @@
 
 LINE账号零售短视频运营详解：LINE账号零售短视频运营的核心，是用短视频吸引目标顾客，再通过LINE私聊、好友分组与优惠活动完成转化。零售商不应只追求播放量，而要围绕商品展示、信任建立和复购设计内容与流程。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号零售短视频运营
 

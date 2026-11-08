@@ -2,9 +2,9 @@
 
 QQ账号经销商注册指南：QQ账号经销商注册应优先通过腾讯官方公告、企业服务渠道或授权合作页面申请，通常需要提交企业资质、联系人信息和业务说明。网上所谓“低价批量开户、免实名注册”多存在封号、诈骗及隐私泄露风险，不建议尝试。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号经销商注册
 

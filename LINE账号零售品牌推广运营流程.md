@@ -2,9 +2,9 @@
 
 LINE账号零售品牌推广运营流程的核心，是把“加好友、促活、下单、复购”连成闭环。品牌应先明确目标客群与转化指标，再通过好友增长、内容触达、优惠券和数据追踪，持续优化用户消费路径，而不是只发布促销消息。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号零售品牌推广运营流程
 

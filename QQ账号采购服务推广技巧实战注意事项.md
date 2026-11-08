@@ -2,9 +2,9 @@
 
 QQ账号采购服务推广技巧实战注意事项：QQ账号采购服务推广技巧的核心，是以合规资质、真实用途和安全交付建立信任。推广前应明确账号来源、使用范围、售后规则，拒绝盗号、批量注册及规避平台监管等高风险做法。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号采购服务推广技巧
 

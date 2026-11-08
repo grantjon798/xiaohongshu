@@ -2,9 +2,9 @@
 
 Telegram账号经销商绑定教程运营流程：Telegram账号经销商绑定教程的核心，是在获得账号所有者明确授权后，通过官方登录、机器人或合规接口完成账号关联，并用后台统一管理客户、权限与订单。不要购买来源不明的账号，也不要索取或转发短信验证码；先确认账号归属、地区规则和Telegram服务条款，再开始绑定。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号经销商绑定教程
 

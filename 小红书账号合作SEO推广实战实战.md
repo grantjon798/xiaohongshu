@@ -2,9 +2,9 @@
 
 小红书账号合作SEO推广实战实战：小红书账号合作SEO推广的关键，不是单纯购买笔记，而是让真实用户通过关键词搜索、内容浏览和账号推荐持续发现品牌。合作前应先明确目标词、用户画像与转化页面，再筛选垂直账号，通常比盲目追求粉丝数量更有效。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是小红书账号合作SEO推广
 

@@ -2,9 +2,9 @@
 
 WhatsApp账号出售社媒营销实战专业指南：想通过WhatsApp开展社媒营销，不建议直接购买来路不明的账号。所谓WhatsApp账号出售，往往伴随实名不清、历史违规、批量注册或回收风险。更稳妥的做法是使用企业官方账号，完成号码验证、资料完善和客户授权，在合规基础上提升触达率与转化效果。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号出售
 

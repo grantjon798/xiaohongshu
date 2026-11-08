@@ -2,9 +2,9 @@
 
 LINE账号供货安全设置实战指南：LINE账号供货安全设置的重点，不是拿到账号后立即登录，而是先确认来源、绑定信息与恢复权限。建议选择可核验的正规渠道，启用双重验证，检查登录设备，并拒绝购买来历不明、要求绕过验证或长期无法修改资料的账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号供货安全设置
 

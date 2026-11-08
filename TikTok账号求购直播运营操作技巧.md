@@ -2,9 +2,9 @@
 
 想做好TikTok账号求购直播运营操作技巧，重点不是单纯购买粉丝量，而是核验账号资质、受众匹配度和直播权限，再用稳定内容完成过渡。账号交易应获得原持有人授权，并遵守TikTok规则及当地法律，避免因异常登录或资料不实导致限流。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号求购直播运营操作技巧
 

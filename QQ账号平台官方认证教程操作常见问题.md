@@ -2,9 +2,9 @@
 
 QQ账号平台官方认证教程操作常见问题：QQ账号平台官方认证主要用于确认账号归属和使用者身份。个人用户通常需完成实名认证或安全验证，企业、机构账号还可能提交营业执照、联系人信息等材料。操作前应通过腾讯官方页面进入认证入口，切勿向第三方提供密码、短信验证码或支付信息。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号平台官方认证
 

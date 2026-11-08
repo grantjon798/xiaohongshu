@@ -2,9 +2,9 @@
 
 LINE账号店铺企业号运营运营教程：想做好LINE账号店铺企业号运营，关键不是频繁发广告，而是先完成账号认证、菜单搭建、客户分组，再通过优惠券、自动回复和数据复盘形成转化流程。小型店铺也能用LINE官方账号沉淀客户，并持续提升复购率。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE企业号运营
 

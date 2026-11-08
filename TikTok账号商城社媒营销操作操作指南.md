@@ -2,9 +2,9 @@
 
 TikTok账号商城社媒营销操作操作指南：TikTok账号商城社媒营销的核心，是用短视频和直播吸引精准流量，再通过商品橱窗、落地页或私信完成转化。商家应先明确目标市场与主推产品，搭建账号内容、选品、投放和售后闭环，而不是单纯追求播放量。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号商城社媒营销
 

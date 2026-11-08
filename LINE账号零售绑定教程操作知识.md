@@ -2,9 +2,9 @@
 
 LINE账号零售绑定教程操作知识：LINE账号零售绑定通常是将个人LINE账号与门店会员、购物平台或零售服务关联。正确做法是进入商家官方页面，使用本人账号授权，并核对绑定结果；不要通过非官方链接提交密码、验证码或购买来路不明的账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号零售绑定
 

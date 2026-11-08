@@ -2,9 +2,9 @@
 
 WhatsApp账号零售新手运营操作指南：WhatsApp账号零售新手运营的关键，是先确认业务合规，再用官方工具完成客户沟通、订单记录与售后管理。不要批量购买、出租或转售个人账号；应使用企业主体注册、实名验证，并获得客户明确同意，降低封号和隐私风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号零售新手运营
 

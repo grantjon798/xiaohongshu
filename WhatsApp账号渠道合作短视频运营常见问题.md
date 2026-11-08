@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道合作短视频运营常见问题：WhatsApp账号渠道合作短视频运营的核心，是通过合规账号承接短视频流量，再用内容、私聊和数据追踪完成转化。常见问题集中在账号风控、渠道分工、视频播放低及客户不回复，解决关键是明确流程、控制频率并持续优化素材。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号渠道合作短视频运营
 

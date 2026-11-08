@@ -2,9 +2,9 @@
 
 LINE账号货源权限管理运营教程的重点，是把供货、报价、订单和客户资料分层授权，避免账号共用造成信息泄露。建议先建立角色权限，再配合双重验证、操作日志和定期复核，让团队在提升响应速度的同时，保持货源数据可控。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号货源权限管理
 

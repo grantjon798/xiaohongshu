@@ -2,9 +2,9 @@
 
 QQ账号供应合作新手运营运营方法：开展QQ账号供应合作，新手最重要的不是追求账号数量，而是确认来源合法、用途合规、售后可追溯。建议只与具备授权资质的服务商合作，不买卖实名个人账号，不使用批量注册、改密或绕过风控等方式。运营初期可先从小规模测试开始，建立供应商审核、交付记录和异常处理流程。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号供应合作
 

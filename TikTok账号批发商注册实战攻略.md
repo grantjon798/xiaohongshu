@@ -2,9 +2,9 @@
 
 TikTok账号批发商注册实战攻略：想注册并经营TikTok账号批发业务，重点不是单纯大量开号，而是建立合规货源、实名审核、交付售后和风险控制流程。建议先明确目标市场与账号类型，再选择具备企业资质、稳定供应链和售后记录的TikTok账号批发商合作，避免因来源不明导致封号或资金损失。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号批发商
 

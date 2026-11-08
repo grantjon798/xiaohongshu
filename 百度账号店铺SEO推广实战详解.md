@@ -2,9 +2,9 @@
 
 百度账号店铺SEO推广实战详解：百度账号店铺SEO推广的核心，是围绕用户搜索词优化店铺资料、内容与服务数据，让潜在客户在百度搜索中更容易发现并信任店铺。实际操作应先确定关键词，再持续发布有价值内容，同时完善账号认证、联系方式和转化入口。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是百度账号店铺SEO推广
 

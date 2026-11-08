@@ -2,9 +2,9 @@
 
 WhatsApp账号供货视频营销操作专业指南：WhatsApp账号供货视频营销操作的核心，不是批量购买或转售账号，而是通过官方WhatsApp Business建立合规账号，再用短视频获取授权客户。这样能降低封号风险，保护用户隐私，并提升线索转化率。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号供货视频营销操作
 

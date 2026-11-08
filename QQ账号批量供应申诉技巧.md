@@ -2,9 +2,9 @@
 
 QQ账号批量供应申诉技巧的核心，不是批量提交相同理由，而是核实账号归属、准备真实资料，并通过腾讯官方申诉渠道逐个处理。购买来源不明的账号、使用虚假身份或脚本集中申诉，可能触发风控，甚至导致账号永久限制。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号批量供应申诉技巧
 

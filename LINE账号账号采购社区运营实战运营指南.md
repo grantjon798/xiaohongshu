@@ -2,9 +2,9 @@
 
 LINE账号账号采购社区运营实战运营指南：LINE账号采购社区运营的关键，不是大量购买账号，而是通过合规账号、清晰分工和持续互动建立稳定社群。建议优先使用官方注册账号，完成实名、权限和安全管理，避免因批量注册、虚假资料或骚扰式营销导致封禁。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号采购社区运营
 

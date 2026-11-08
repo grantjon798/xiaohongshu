@@ -2,9 +2,9 @@
 
 QQ账号批量交易品牌推广实战教程：QQ账号批量交易品牌推广看似能快速增加触达量，实际上存在账号来源不明、隐私泄露、封号及诈骗等风险。更稳妥的做法，是使用企业认证账号、官方广告工具和经过授权的社群资源，建立可追踪、可持续的品牌获客渠道。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号批量交易品牌推广
 

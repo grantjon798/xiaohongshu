@@ -2,9 +2,9 @@
 
 WhatsApp账号货源运营操作指南：WhatsApp账号货源运营的核心，不是大量购买账号，而是通过官方注册、资料完善、客户分层和合规沟通，建立稳定的企业获客渠道。优先使用企业自有账号，避免来历不明的批量账号带来封禁、隐私泄露和资金损失。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号货源运营
 

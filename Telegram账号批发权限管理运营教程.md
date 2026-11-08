@@ -2,9 +2,9 @@
 
 Telegram账号批发权限管理运营教程：Telegram账号批发权限管理的重点，不是单纯增加账号数量，而是对授权账号、登录设备、成员角色和使用范围进行统一控制。建议先确认账号来源合法合规，再通过分组、分级和日志记录降低误操作、封禁及信息泄露风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号批发权限管理
 

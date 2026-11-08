@@ -2,9 +2,9 @@
 
 TikTok账号转让实名认证指南营销指南：TikTok账号转让实名认证不能靠修改资料或借用他人证件完成。更稳妥的做法是先确认平台是否允许账号转移，再由原持有人和接收方通过官方渠道处理；若平台不支持转让，应停止交易，避免封号、资金损失及隐私风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号转让实名认证
 

@@ -2,9 +2,9 @@
 
 LINE账号求购企业号运营运营常见问题：关注LINE账号求购的企业，最需要先确认账号归属、转移权限和平台合规性。相比购买个人账号，使用官方LINE企业号并完成资料认证，更利于长期运营，也能降低封号、客户流失和资金损失风险。交易前应核验主体、历史消息、好友来源及管理员权限，避免只看粉丝数量。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号求购企业号运营
 

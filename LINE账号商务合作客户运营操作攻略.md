@@ -2,9 +2,9 @@
 
 LINE账号商务合作客户运营操作攻略：LINE账号商务合作客户运营的重点，不是单纯增加好友，而是通过授权触达、分层管理和持续跟进，把一次咨询转化为长期合作。企业可将LINE用于客户接待、报价发送、订单提醒及售后服务，并结合数据及时优化沟通内容。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号商务合作客户运营
 

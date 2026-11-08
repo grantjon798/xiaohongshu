@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道商认证实战详细教程：WhatsApp账号渠道商认证通常不是单独购买一个“认证标识”，而是通过Meta Business验证企业主体，并由官方认可的技术服务商或渠道商开通WhatsApp Business Platform。准备营业执照、官网、企业邮箱、品牌信息及可接收短信的手机号，资料真实一致，通常能明显提高审核通过率。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号渠道商认证
 

@@ -2,9 +2,9 @@
 
 想做好TikTok账号渠道合作管理运营，关键是把合作方筛选、账号授权、内容排期、数据复盘和收益结算统一管理。建议先建立渠道台账，再用周报追踪播放量、互动率、转化率及违规情况，避免账号失控或资源重复。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号渠道合作管理运营教程
 

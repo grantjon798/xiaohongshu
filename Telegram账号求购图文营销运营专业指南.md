@@ -2,9 +2,9 @@
 
 Telegram账号求购图文营销运营专业指南：Telegram账号求购应优先选择经过授权的企业账号或官方创建的新账号，不建议购买个人账号、批量注册账号或来源不明的“老号”。交易前核验归属、登录安全、历史违规记录及转让权限，才能降低封禁、诈骗和数据泄露风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号求购
 

@@ -2,9 +2,9 @@
 
 想了解QQ账号供货官方认证教程推广指南，先明确一点：腾讯并不存在面向个人账号卖家开放的“QQ账号供货官方认证”。任何声称可批量提供实名账号、保证长期不封或代办官方认证的服务，都可能涉及违规、诈骗或隐私泄露。安全做法是通过QQ安全中心、腾讯客服及正规企业认证渠道核实信息。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号供货官方认证
 

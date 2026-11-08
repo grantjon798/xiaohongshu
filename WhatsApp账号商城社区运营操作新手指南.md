@@ -2,9 +2,9 @@
 
 WhatsApp账号商城社区运营操作新手指南：WhatsApp账号商城社区运营的关键，不是批量加人或出售账号，而是围绕合规账号、真实用户与持续服务，建立可追踪的社群转化流程。新手应先明确目标，再完成分组、内容发布、咨询跟进和数据复盘。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号商城社区运营
 

@@ -2,9 +2,9 @@
 
 钉钉账号商铺SEO优化推广指南：钉钉账号商铺SEO优化推广的重点，不是简单堆砌关键词，而是让商铺在搜索结果中清晰展示服务、资质与联系方式。通过完善店铺资料、布局用户搜索词、持续发布真实内容，并结合数据调整页面，可提升曝光、咨询率与有效转化。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是钉钉账号商铺SEO优化推广
 

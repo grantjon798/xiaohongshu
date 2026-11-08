@@ -2,9 +2,9 @@
 
 Telegram账号库存私域运营操作步骤：Telegram账号库存私域运营的核心，不是批量注册或群发广告，而是将企业自有、经过授权的账号资源，按客户同意、内容分层和数据安全原则进行管理。实际操作应先建立账号台账，再完成标签分类、内容触达、效果复盘，并设置退订与风控机制。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号库存私域运营
 

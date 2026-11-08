@@ -2,9 +2,9 @@
 
 Telegram账号资源对接运营安全指南的核心，是在合法授权、最小权限和可审计的前提下管理账号、机器人及频道资源。不要购买来源不明的账号，也不要通过群发骚扰、虚假身份或绕过平台限制获取流量；这类做法可能导致封禁、数据泄露，甚至触及法律风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号资源对接运营安全指南
 

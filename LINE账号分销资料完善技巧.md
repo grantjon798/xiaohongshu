@@ -2,9 +2,9 @@
 
 完善LINE账号分销资料的关键，是保证身份信息真实、联系方式可验证、分销用途清晰，并统一头像、昵称与业务介绍。资料完整不仅能提升客户信任，也有助于减少审核失败、交易纠纷和账号异常。切勿使用虚假身份、批量注册或绕过平台验证。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号分销资料完善技巧
 

@@ -2,9 +2,9 @@
 
 TikTok账号货源内容运营运营操作指南：TikTok账号货源内容运营的核心，不是单纯发布商品视频，而是同时解决“卖什么、从哪里拿货、如何展示、怎样转化”四个问题。建议先锁定细分人群，再筛选稳定货源，通过短视频测试点击率和询盘量，最后用数据淘汰低效商品。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号货源内容运营
 

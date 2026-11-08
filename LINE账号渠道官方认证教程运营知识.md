@@ -2,9 +2,9 @@
 
 LINE账号渠道官方认证教程运营知识：想完成LINE账号渠道官方认证，关键不是单纯提交资料，而是先确认账号类型、运营主体与业务用途，再通过LINE官方后台按要求验证。企业应准备营业执照、品牌官网、负责人联系方式及清晰的服务说明，资料一致通常更利于审核通过。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号渠道官方认证
 

@@ -2,9 +2,9 @@
 
 WhatsApp账号批发商图文营销实战指南：WhatsApp账号批发商开展图文营销，关键不是大量发送广告，而是用真实、清晰且合规的内容触达已同意接收信息的客户。建议先完成账号分类、素材测试和发送频率控制，再通过产品图、场景说明与行动按钮提升咨询率，同时遵守WhatsApp商业政策，避免骚扰、虚假宣传及批量滥发。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号批发商图文营销
 

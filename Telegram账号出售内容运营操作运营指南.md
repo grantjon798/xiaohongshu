@@ -2,9 +2,9 @@
 
 Telegram账号出售内容运营操作运营指南：Telegram账号出售并不等于简单交接用户名和密码。更稳妥的做法是优先使用官方允许的管理权限转移，并核验账号来源、历史内容和登录安全，避免因违规、诈骗或隐私问题造成损失。若用于品牌社群运营，应先确认平台规则和当地法律要求。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号出售
 

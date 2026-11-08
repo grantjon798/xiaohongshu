@@ -2,9 +2,9 @@
 
 TikTok账号货源官方认证教程运营指南：想做跨境电商，先要明确：TikTok并不会替所有“账号货源”统一背书。可靠做法是通过官方入口完成账号或店铺认证，再核验供应商资质、商品授权和物流能力，降低封号与侵权风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 TikTok账号货源官方认证是什么
 

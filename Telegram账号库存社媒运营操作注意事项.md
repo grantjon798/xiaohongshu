@@ -2,9 +2,9 @@
 
 Telegram账号库存社媒运营操作注意事项的核心，不是批量发布，而是确保账号来源合规、登录安全和内容节奏稳定。运营前应核验账号授权，避免使用来历不明或批量注册的账号；同时设置独立密码、双重验证及权限分级，降低封禁、盗号和隐私泄露风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号库存社媒运营操作注意事项
 

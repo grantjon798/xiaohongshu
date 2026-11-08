@@ -2,9 +2,9 @@
 
 WhatsApp账号平台品牌推广运营教程的核心，是用WhatsApp Business完成客户沉淀、内容触达与订单转化。企业应先完善账号资料，再通过用户授权、分组沟通和数据复盘建立稳定的品牌运营流程，而不是盲目群发广告。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号平台品牌推广运营教程
 

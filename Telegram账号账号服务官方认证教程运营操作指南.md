@@ -2,9 +2,9 @@
 
 Telegram账号账号服务官方认证教程运营操作指南：Telegram账号服务官方认证并不是购买蓝标，而是由Telegram依据公开影响力与身份资料审核。普通个人账号通常不能直接申请，适合申请的对象主要是企业、媒体、品牌、公共机构及官方频道、群组或机器人。提交前应准备官网和其他平台的同名链接，避免使用非官方代理或付费“包认证”服务。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号服务官方认证
 

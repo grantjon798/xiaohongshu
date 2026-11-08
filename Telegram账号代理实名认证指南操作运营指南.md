@@ -2,9 +2,9 @@
 
 Telegram账号代理实名认证指南操作运营指南：Telegram账号代理实名认证应以官方规则和用户授权为前提，代理方不能替用户绕过验证、购买实名资料或承诺“百分百解封”。正确做法是确认服务范围，使用本人真实信息，并通过官方应用完成身份核验。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号代理实名认证
 

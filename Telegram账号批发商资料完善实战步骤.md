@@ -2,9 +2,9 @@
 
 Telegram账号批发商资料完善实战步骤：Telegram账号批发商资料完善的关键，是先核验账号来源与合规性，再统一补充头像、昵称、简介、联系方式及售后规则。建议使用真实、清晰且不夸大的信息，避免批量账号因资料异常触发风控，也方便客户判断服务是否可靠。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号批发商资料完善
 

@@ -2,9 +2,9 @@
 
 Telegram账号平台安全设置操作实战：想降低Telegram账号被盗、验证码泄露或陌生设备登录的风险，建议立即完成双重验证、登录设备管理、应用锁和恢复邮箱设置。Telegram账号平台安全设置并不复杂，通常十分钟内即可完成，关键是使用官方客户端，并定期检查活跃会话。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号平台安全设置
 

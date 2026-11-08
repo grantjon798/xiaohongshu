@@ -2,9 +2,9 @@
 
 LINE账号店铺SEO推广运营推广指南：想让LINE店铺获得更多自然访问，关键不是频繁群发，而是做好LINE账号店铺SEO推广：完善账号资料、优化商品关键词、持续发布有价值的内容，并通过官网、社交媒体和顾客评价建立可信度。这样用户搜索品牌、商品或服务时，更容易找到并咨询店铺。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号店铺SEO推广
 

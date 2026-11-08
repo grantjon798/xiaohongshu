@@ -2,9 +2,9 @@
 
 LINE账号合作矩阵运营运营详细教程：LINE账号合作矩阵运营，核心是围绕不同市场、产品或客户群搭建多个账号，并通过统一策略协同获客、沟通与转化。实际执行时应重视账号分工、内容规划和合规管理，而不是简单批量注册账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号合作矩阵运营
 

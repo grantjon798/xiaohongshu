@@ -2,9 +2,9 @@
 
 QQ账号供应商内容营销指南：选择QQ账号供应商时，不能只看价格和数量，更要核查账号来源、实名合规、售后机制与营销用途。可靠的QQ账号供应商应提供清晰的服务边界，避免批量注册、虚假身份、骚扰推广等行为，降低封号和品牌风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是QQ账号供应商
 

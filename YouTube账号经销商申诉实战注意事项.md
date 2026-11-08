@@ -2,9 +2,9 @@
 
 YouTube账号经销商申诉实战注意事项：YouTube账号经销商申诉的关键，不是反复提交表单，而是先确认封禁原因、账号归属与经销商权限，再用真实、完整且可核验的材料说明情况。申诉内容应避免夸大、代写或伪造信息，否则可能延长审核时间，甚至导致永久限制。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是YouTube账号经销商申诉
 

@@ -2,9 +2,9 @@
 
 TikTok账号渠道合作私域运营操作教程：TikTok账号渠道合作私域运营的核心，是通过达人、机构或垂类账号获取精准用户，再用合规方式沉淀到品牌可持续触达的私域中。实际操作应围绕“筛选渠道—设计诱因—承接用户—持续转化”展开，避免私信骚扰、虚假承诺和违规导流。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号渠道合作私域运营
 

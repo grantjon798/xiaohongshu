@@ -2,9 +2,9 @@
 
 Telegram账号交易企业号认证操作注意事项：Telegram账号交易企业号认证的关键，不是单纯更换登录邮箱或手机号，而是确认账号主体、企业资料与实际控制人一致。交易前应先核验账号来源、历史安全记录及平台规则；认证过程中使用真实主体信息，并通过官方入口提交材料，避免因资料不符导致审核失败或账号受限。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号交易企业号认证
 

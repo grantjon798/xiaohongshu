@@ -2,9 +2,9 @@
 
 Telegram账号库存内容营销操作方案的重点，不是批量发送广告，而是盘活已有账号资源，通过用户分层、内容排期和合规触达，持续提升阅读、咨询与转化。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号库存内容营销操作方案
 

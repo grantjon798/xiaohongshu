@@ -2,9 +2,9 @@
 
 TikTok账号经销商认证详细教程：想完成TikTok账号经销商认证，关键是通过官方合作入口提交企业资料、负责人身份信息及业务证明，审核通过后再按授权范围开展账号服务。TikTok不同地区的合作政策并不完全相同，切勿相信“内部通道”或购买虚假认证。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号经销商认证
 

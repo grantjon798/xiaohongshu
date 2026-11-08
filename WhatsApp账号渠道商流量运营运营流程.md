@@ -2,9 +2,9 @@
 
 WhatsApp账号渠道商流量运营运营流程：WhatsApp账号渠道商流量运营流程的核心，是把获客、账号分层、用户触达、转化和复盘连成闭环。渠道商应优先使用合规账号与官方工具，先取得用户授权，再通过标签和数据分析提升有效咨询率，而不是盲目群发消息。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是WhatsApp账号渠道商流量运营流程
 

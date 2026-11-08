@@ -2,9 +2,9 @@
 
 LINE账号招商增长方法操作新手指南：LINE账号招商增长方法的核心，是用官方账号承接流量，再通过内容、自动回复和分层跟进促成代理或合作商加入。新手不必一开始追求大规模投放，应先明确招商对象、设计注册路径，并用数据持续优化转化率。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号招商增长方法
 

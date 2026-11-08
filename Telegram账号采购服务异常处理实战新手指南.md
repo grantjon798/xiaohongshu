@@ -2,9 +2,9 @@
 
 Telegram账号采购服务异常处理实战新手指南：遇到Telegram账号采购服务异常时，先暂停付款与批量操作，核对订单状态、账号来源及服务条款，再通过正规客服提交工单。不要购买明显低价、要求绕过验证或承诺“永久免封”的账号，以免造成资金损失和隐私风险。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号采购服务异常处理
 

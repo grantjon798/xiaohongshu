@@ -2,9 +2,9 @@
 
 TikTok账号代理商视频营销实战推广指南：想提升TikTok视频曝光和转化，选择可靠的TikTok账号代理商，并结合本地化内容、稳定运营和数据复盘，通常比单纯发布视频更有效。代理商可协助完成账号定位、视频制作、投放测试及私信转化，适合缺少海外团队的品牌和跨境商家。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号代理商
 

@@ -2,9 +2,9 @@
 
 TikTok账号账号交易异常处理运营运营指南：TikTok账号交易异常处理的关键，是先暂停登录、转账和改绑操作，保存订单及聊天证据，再根据异常类型联系平台客服或交易平台申诉。切勿频繁切换设备、使用代理绕过验证，以免触发更严重的风控。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号交易异常处理
 

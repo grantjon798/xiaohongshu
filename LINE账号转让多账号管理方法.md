@@ -2,9 +2,9 @@
 
 LINE账号转让多账号管理方法的重点，不是简单交出账号和密码，而是确认转让合规、资料安全，并建立统一的权限与登录记录。若用于客服、社群或海外业务，建议优先使用LINE官方企业功能，转让前取得原持有者同意，避免因异常登录、实名信息不一致而被限制使用。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE账号转让多账号管理方法
 

@@ -2,9 +2,9 @@
 
 TikTok账号供应商获客方法实战注意事项：TikTok账号供应商想稳定获客，关键不在低价铺量，而在合规、真实和可验证。建议先明确客户类型，再通过官网内容、行业社群、案例展示和商务合作获取线索，同时避免出售盗用、批量注册或无法完成主体验证的账号。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是TikTok账号供应商
 

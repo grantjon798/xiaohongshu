@@ -2,9 +2,9 @@
 
 LINE账号合作企业号运营运营操作指南：LINE企业号运营的关键，是先完成企业认证，再通过好友增长、分组触达、内容发布和数据复盘建立稳定转化流程。适合零售、电商、餐饮及跨境服务企业，可将咨询、优惠通知与售后服务集中到LINE账号管理。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是LINE企业号运营
 

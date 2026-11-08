@@ -2,9 +2,9 @@
 
 Telegram账号渠道合作跨境营销操作攻略：开展Telegram账号渠道合作跨境营销，关键不是盲目加群，而是找到受众匹配、数据透明且遵守平台规则的频道，通过内容测试、链接追踪和分阶段投放，稳定获取海外用户。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号渠道合作跨境营销
 

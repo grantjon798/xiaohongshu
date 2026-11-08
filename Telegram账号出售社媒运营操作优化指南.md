@@ -2,9 +2,9 @@
 
 Telegram账号出售存在封号、诈骗、隐私泄露和账号追责风险，不建议通过非官方渠道购买或转让账号。更稳妥的做法是使用本人注册的Telegram账号，配合公开频道、群组和合规管理员权限完成社媒运营，并通过内容质量提升触达与转化。
 
-➡️➡️➡️ 账号批发服务，24小时在线自助下单
+[➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://9527shop.com)
 
-![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)
+[![➡️➡️➡️ 账号批发服务，24小时在线自助下单](https://raw.githubusercontent.com/grantjon798/xiaohongshu/main/images/xhs.png)](https://9527shop.com)
 
 什么是Telegram账号出售社媒运营操作优化指南
 
